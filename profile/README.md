@@ -6,6 +6,7 @@
 
 
 > [!CAUTION]
-> Our team hate Chinese Goverment
-> For example:Xi JiNg PiNg
-> that person is a fucking asshole
+> Our team strictly prohibits political appraisal
+
+> [!WARNING]
+> Fucking don't push directly, pull it locally and then make pull requests
