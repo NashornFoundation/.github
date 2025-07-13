@@ -3,10 +3,19 @@
 ### 🎉 Welcome to Nashron Foundation！
 
  We are a team which is developing minecraft hacking client
+ We have the best gay service
 
 
 > [!CAUTION]
-> Our team strictly prohibits political appraisal
+> All of us are gay🥵🥵🥵
+> Including femboy,LGBT and so on❤️❤️❤️
 
 > [!WARNING]
-> Fucking don't push directly, pull it locally and then make pull requests
+> Push all the things directly😘
+
+
+
+
+>[!PUS$Y]
+>万朵pus$y开
+>means plenty of pus$y wanted to be fucked.
