@@ -16,6 +16,8 @@
 
 
 
->[!PUS$Y]
+>[!WARNING]
+>Gays are cuming!
+>
 >万朵pus$y开
 >means plenty of pus$y wanted to be fucked.
