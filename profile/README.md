@@ -6,18 +6,8 @@
  We have the best gay service
 
 
-> [!CAUTION]
-> All of us are gay🥵🥵🥵
-> Including femboy,LGBT and so on❤️❤️❤️
+ > [!CAUTION]
+> Our team strictly prohibits political appraisal
 
 > [!WARNING]
-> Push all the things directly😘
-
-
-
-
->[!WARNING]
->Gays are cuming!
->
->万朵pus$y开
->means plenty of pus$y wanted to be fucked.
+> Fucking don't push directly, pull it locally and then make pull requests
